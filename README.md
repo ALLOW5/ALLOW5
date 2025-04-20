@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ALLOW5
 - 👀 I’m interested in programming and research
-- 🌱 I’m currently learning 11th std
+- 🌱 I’m currently studying 11th std
 - 💞️ I’m looking to collaborate on free courses on jee and programming courses
 - 📫 How to reach me type mea comment on this link: https://studentinfoaboutexam.blogspot.com/
 - 😄 Pronouns: ALLOW5
